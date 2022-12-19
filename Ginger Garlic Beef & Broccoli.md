@@ -20,7 +20,6 @@ Total time: 20 min.
 
 ## Serve with:
 - White Rice
-- Thai Chili Flake (or Cayenne Powder)
 
 ## Instructions:
 1. (Optional) Place the steak in the freezer for 1 to 2 hours before cooking. Cook rice to serve it with.
@@ -29,4 +28,3 @@ Total time: 20 min.
 4. Chop the broccoli into pieces for stir-frying.
 5. Pour the remaining oil into a wok and set over high heat. Once just starting to smoke, add the seasoned beef and stir fry for 1-2 minutes until cooked through. Remove and set aside.
 6. Add a little soy sauce and water to the wok. Scrape the fond from the bottom of the pan and then add the broccoli. Let cook until the water evaporates, then set aside. The broccoli should still be a bit crunchy.
-7. To serve, place rice down along a sprinkle of sesame seeds. Add the broccoli followed by the beef, and lastly another sprinkle of the chili flakes. Devour.
