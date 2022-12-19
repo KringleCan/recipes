@@ -19,7 +19,7 @@ Total time: 20 min.
 - Splash of water
 
 ## Serve with:
-- White Rice (See [recipe](White Rice.md))
+- White Rice (See [recipe](White+Rice.md))
 
 ## Instructions:
 1. (Optional) Place the steak in the freezer for 1 to 2 hours before cooking. Cook rice to serve it with.
