@@ -6,7 +6,7 @@ Cook time: 120 min.
 Total time: 125 min.
 
 ## Ingredients
-- 4 cups shredded cooked chicken
+- 4 cups shredded cooked chicken (about 1 1/2 lbs)
 - 2 packages (8 ounces each) cream cheese, cut into chunks
 - 1 cup Frank's RedHot® Original Cayenne Pepper Hot Sauce
 - 1 cup ranch dressing
