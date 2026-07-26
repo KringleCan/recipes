@@ -100,5 +100,6 @@ Costs (adjusted):
 - Rice: $0.30 
 
 Total: $11.46
+Got 4 servings out of it
+Price per actual serving (total/ 4): $2.87
 
-Price per actual serving (total/ 3): $3.86
