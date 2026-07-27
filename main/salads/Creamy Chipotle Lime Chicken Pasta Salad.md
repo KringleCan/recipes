@@ -1,6 +1,6 @@
 # Creamy Chipotle Lime Chicken Pasta Salad
 
-Original recipe: [https://www.allrecipes.com/recipe/8691/chicken-enchiladas-i/](https://www.instagram.com/p/DaQnmWBNH5s/)
+Original recipe: https://www.instagram.com/p/DaQnmWBNH5s/
 
 Servings: 
 Prep time:  min.
